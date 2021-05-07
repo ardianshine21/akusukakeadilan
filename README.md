@@ -1,0 +1,2 @@
+# akusukakeadilan
+A
